@@ -21,5 +21,5 @@
 
 ## 📫 Contact Me
 - 📧 Email: [harshkumard315@gmail.com](mailto:harshkumard315@gmail.com)
-- 🌐 LinkedIn: [(https://www.linkedin.com/in/harshkumard315?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3B3seO5j%2B9RQuAX3K3Fq7E3A%3D%3D)]
+- 🌐 LinkedIn: [(https://www.linkedin.com/in/harshkumard315)]
 
